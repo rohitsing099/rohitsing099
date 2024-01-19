@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rohit
-- 👀 I’m interested inin Coding
+- 👀 I’m interested in Coding
 - 🌱 I’m currently learning  Mathematics
 - 💞️ I’m looking to collaborate on  Projects
 - 📫 How to reach me 😂
